@@ -11,4 +11,4 @@ FAST University
 <br>
 Don't forget to follow me on linked in.
 <br>
-[Linkedin profile](www.linkedin.com/in/numan-asghar-79587628a)
+[Linkedinprofile](https://www.linkedin.com/in/numan-asghar-79587628a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
